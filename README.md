@@ -1,3 +1,2 @@
 # girrfe
-for TR-13 lpnu
-lkgaelfubariofygawobflasijbfoawifhapbireyofpsfnweiroygfwanfvieorugrwf
+Rostyslav Yasinskyi TR - 13
